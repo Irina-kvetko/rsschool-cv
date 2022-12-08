@@ -3,6 +3,7 @@
 ## Contact  
 **Email:  ironia1100@gmail.com**  
 **[Linkedin](http:/linkedin.com/in/irina-kvetko-65369a212)**  
+**Discord: Irina Kvetko#1072**  
 **Location: Vilnius, Lithuania**
 *****
 ## About me  

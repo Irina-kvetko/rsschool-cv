@@ -8,7 +8,7 @@
 *****
 ## About me  
 
-I am very motivated, thorough, hard-working and not conflicted, ready to learn and develop
+I am very motivated, thorough, hard-working and not conflicted, ready to learn and develop  
 *****
 ## Skills  
 
@@ -23,11 +23,11 @@ I am very motivated, thorough, hard-working and not conflicted, ready to learn a
 *Main responsibilities:*  
 + Payroll  
 + Reporting (Word, Excel)  
-+Staffing establishment
++ Staffing establishment
 
 *Achievements:*
 + Acted as head of unit in his absence, managed a team of 4 people
-+ Drawing up and maintaining the staffing table of the enterprise for more than 500 people
++ Drawing up and maintaining the staffing table of the enterprise for more than 500 people  
 *****
 ## Education  
 
@@ -35,7 +35,7 @@ I am very motivated, thorough, hard-working and not conflicted, ready to learn a
 Course: IT Project Management 
 
 **2001-2006 – Belarusian National Technical University**   
-Specialization: Economics and Company Management
+Specialization: Economics and Company Management  
 *****
 ## Languages  
 
